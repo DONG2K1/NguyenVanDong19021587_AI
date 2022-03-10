@@ -1,0 +1,2 @@
+# NguyenVanDong19021587_AI
+![273755799_1218872298850966_8764806686845756818_n](https://user-images.githubusercontent.com/93182446/157689831-c9fafbe4-d7e4-42f3-9f83-2a0e2ce8a2fc.png)
